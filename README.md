@@ -1,2 +1,2 @@
 # FAKECALL
-Pemula Jangan Dibully Yak:)
+Say hello to me.
